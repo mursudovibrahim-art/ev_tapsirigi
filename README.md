@@ -1,0 +1,1 @@
+əkob və əbob tapılması
